@@ -1,1 +1,1 @@
-# DiscoverAI_Projects_10
+# DiscoverAI_Projects_Group10
